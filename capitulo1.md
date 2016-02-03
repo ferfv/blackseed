@@ -15,6 +15,6 @@ A pocos minutos de caer la noche, mientras bebían cerveza, conversaban Joel y M
 *Nota: Amigos de mi infancia*
 
 —Con ese tipo de sueños no creo que descubras mucho.    
-—No pienso pasar por alto ninguno de mis sueños para mi investigación, por más sencillos o tontos que sean. Dicen que el diablo está en los detalles.
+—No pienso pasar por alto ninguno de mis sueños para mi investigación por más sencillos o tontos que sean. Dicen que el diablo está en los detalles.
 
 Joel es un joven de 28 años apasionado por la ingeniería, aunque su especialidad son las ciencias exactas tiene una gran atracción por la aleatoriedad del universo, la mente, el comportamiento humano y como puede haber una conexión entre todo. Un vacío existencial y una mente inquieta lo han llevado a un mundo de preguntas que mediante análisis tratará de encontrar respuestas.
