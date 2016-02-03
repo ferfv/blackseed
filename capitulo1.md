@@ -10,6 +10,11 @@ A pocos minutos de caer la noche, mientras bebían cerveza, conversaban Joel y M
 
 ### Sueño #1 25 de mayo de 2010
 
-*Caminaba entre arbustos tratando de llegar a la cima de un cerro, derrepente veo que otros amigos de mi infancia que no veo en años también están subiendo y se convierte en una carrera, antes de ganar despierto.*
+*Caminaba entre arbustos tratando de llegar a la cima de un cerro, de pronto observo que unos amigos de mi infancia a quienes no veo en años también están subiendo y se convierte en una carrera, antes de ganar despierto.*
 
 *Nota: Amigos de mi infancia*
+
+—Con ese tipo de sueños no creo que descubras mucho.    
+—No pienso pasar por alto ninguno de mis sueños para mi investigación, por más sencillos o tontos que sean. Dicen que el diablo está en los detalles.
+
+Joel es un joven de 28 años apasionado por la ingeniería, aunque su especialidad son las ciencias exactas tiene una gran atracción por la aleatoriedad del universo, la mente, el comportamiento humano y como puede haber una conexión entre todo. Un vacío existencial y una mente inquieta lo han llevado a un mundo de preguntas que mediante análisis tratará de encontrar respuestas.
